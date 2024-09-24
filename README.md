@@ -1,1 +1,1 @@
-# https://bryansoares59d.github.io/MeuCurriculo/
+# https://bryansoares59d.github.io/MeuCurr-culo/
